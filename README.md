@@ -1,3 +1,1 @@
-I code 👍
-
-and other stuff
+We always stay strong 🇮🇷
