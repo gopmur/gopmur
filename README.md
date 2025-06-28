@@ -1,1 +1,3 @@
-We always stay strong 🇮🇷
+HI. I code
+
+And other stuff too 
